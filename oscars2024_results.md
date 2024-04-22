@@ -129,620 +129,333 @@ PG](Motion_Picture_Association_film_rating_system "wikilink").[41]
 
 ### Awards
 
-[thumb|right|upright=0.68|alt=.|[Christopher
-Nolan](Christopher_Nolan "wikilink"), Best Picture co-winner and Best
-Director winner](File:Christopher_Nolan_Cannes_2018.jpg "wikilink")
-[thumb|right|upright=0.68|alt=.|[Cillian
-Murphy](Cillian_Murphy "wikilink"), Best Actor
-winner](File:Cillian_Murphy-2014.jpg "wikilink")
-[thumb|right|upright=0.68|alt=.|[Emma Stone](Emma_Stone "wikilink"),
-Best Actress
-winner](File:Emma_Stone_at_the_39th_Mill_Valley_Film_Festival_(cropped).jpg "wikilink")
-[thumb|right|upright=0.68|alt=.|[Robert Downey
-Jr.](Robert_Downey_Jr. "wikilink"), Best Supporting Actor
-winner](File:Robert_Downey_Jr_2014_Comic_Con_(cropped).jpg "wikilink")
-[thumb|right|upright=0.68|alt=.|[Da'Vine Joy
-Randolph](Da'Vine_Joy_Randolph "wikilink"), Best Supporting Actress
-winner](File:Da'Vine_Joy_Randolph_The_Holdovers_Q&A_BFI_Southbank,_January_2024.jpg "wikilink")
-[thumb|right|upright=0.68|alt=.|[Mstyslav
-Chernov](Mstyslav_Chernov "wikilink"), Best Documentary Feature Film
-co-winner](File:Mstyslav_Chernov_par_Claude_Truong-Ngoc_septembre_2022_(cropped).jpg "wikilink")
-[thumb|right|upright=0.68|alt=.|[Jonathan
-Glazer](Jonathan_Glazer "wikilink"), Best International Feature Film
-winner](File:ZoneIntrestBFILFF121023_(7_of_31)_(53255110321)_(cropped)_2.jpg "wikilink")
-[thumb|right|upright=0.68|alt=.|[Wes Anderson](Wes_Anderson "wikilink"),
-Best Live Action Short
-co-winner](File:MJK_08478_Wes_Anderson_(Opening_Gala_Berlinale_2018).jpg "wikilink")
-[thumb|right|upright=0.68|alt=.|[Ludwig
-Göransson](Ludwig_Göransson "wikilink"), Best Original Score
-winner](File:Ludwig_Göransson_2018_Interview_(cropped).jpg "wikilink")
-[thumb|right|upright=0.68|alt=.|[Takashi
-Yamazaki](Takashi_Yamazaki "wikilink"), Best Visual Effects
-co-winner](File:Yamazaki_Takashi_from_"Godzilla_Minus_One"_at_Red_Carpet_of_the_Tokyo_International_Film_Festival_2023_(53348355520)_(cropped)_(2).jpg "wikilink")
-Winners are listed first, highlighted in **boldface**, and indicated
-with a double dagger (‡).[42]
+* Christopher Nolan, Best Picture co-winner and Best Director winner
 
-<table>
-<tbody>
-<tr class="odd">
-<td style="vertical-align:top; width:50%;"><ul>
-<li><strong><em><a href="Oppenheimer_(film)"
-title="wikilink">Oppenheimer</a></em> – <a href="Emma_Thomas"
-title="wikilink">Emma Thomas</a>, <a href="Charles_Roven"
-title="wikilink">Charles Roven</a>, and <a href="Christopher_Nolan"
-title="wikilink">Christopher Nolan</a>, producers </strong>
-<ul>
-<li><em><a href="American_Fiction_(film)" title="wikilink">American
-Fiction</a></em> – Ben LeClair, , <a href="Cord_Jefferson"
-title="wikilink">Cord Jefferson</a>, and Jermaine Johnson,
-producers</li>
-<li><em><a href="Anatomy_of_a_Fall" title="wikilink">Anatomy of a
-Fall</a></em> – <a href="Marie-Ange_Luciani" title="wikilink">Marie-Ange
-Luciani</a> and <a href="David_Thion" title="wikilink">David Thion</a>,
-producers</li>
-<li><em><a href="Barbie_(film)" title="wikilink">Barbie</a></em> – <a
-href="David_Heyman" title="wikilink">David Heyman</a>, <a
-href="Margot_Robbie" title="wikilink">Margot Robbie</a>, <a
-href="Tom_Ackerley" title="wikilink">Tom Ackerley</a>, and <a
-href="Robbie_Brenner" title="wikilink">Robbie Brenner</a>,
-producers</li>
-<li><em><a href="The_Holdovers" title="wikilink">The Holdovers</a></em>
-– <a href="Mark_Johnson_(producer)" title="wikilink">Mark Johnson</a>,
-producer</li>
-<li><em><a href="Killers_of_the_Flower_Moon_(film)"
-title="wikilink">Killers of the Flower Moon</a></em> – <a
-href="Dan_Friedkin" title="wikilink">Dan Friedkin</a>, <a
-href="Bradley_Thomas_(producer)" title="wikilink">Bradley Thomas</a>, <a
-href="Martin_Scorsese" title="wikilink">Martin Scorsese</a>, and <a
-href="Daniel_Lupi" title="wikilink">Daniel Lupi</a>, producers</li>
-<li><em><a href="Maestro_(2023_film)" title="wikilink">Maestro</a></em>
-– <a href="Bradley_Cooper" title="wikilink">Bradley Cooper</a>, <a
-href="Steven_Spielberg" title="wikilink">Steven Spielberg</a>, <a
-href="Fred_Berner" title="wikilink">Fred Berner</a>, , and <a
-href="Kristie_Macosko_Krieger" title="wikilink">Kristie Macosko
-Krieger</a>, producers</li>
-<li><em><a href="Past_Lives_(film)" title="wikilink">Past Lives</a></em>
-– <a href="David_Hinojosa" title="wikilink">David Hinojosa</a>, <a
-href="Christine_Vachon" title="wikilink">Christine Vachon</a>, and <a
-href="Pamela_Koffler" title="wikilink">Pamela Koffler</a>,
-producers</li>
-<li><em><a href="Poor_Things_(film)" title="wikilink">Poor
-Things</a></em> – <a href="Ed_Guiney" title="wikilink">Ed Guiney</a>, <a
-href="Andrew_Lowe_(producer)" title="wikilink">Andrew Lowe</a>, <a
-href="Yorgos_Lanthimos" title="wikilink">Yorgos Lanthimos</a>, and <a
-href="Emma_Stone" title="wikilink">Emma Stone</a>, producers</li>
-<li><em><a href="The_Zone_of_Interest_(film)" title="wikilink">The Zone
-of Interest</a></em> – <a href="James_Wilson_(producer)"
-title="wikilink">James Wilson</a>, producer</li>
-</ul></li>
-</ul></td>
-<td style="vertical-align:top; width:50%;"><ul>
-<li><strong><a href="Christopher_Nolan" title="wikilink">Christopher
-Nolan</a> – <em><a href="Oppenheimer_(film)"
-title="wikilink">Oppenheimer</a></em> </strong>
-<ul>
-<li><a href="Justine_Triet" title="wikilink">Justine Triet</a> – <em><a
-href="Anatomy_of_a_Fall" title="wikilink">Anatomy of a
-Fall</a></em></li>
-<li><a href="Martin_Scorsese" title="wikilink">Martin Scorsese</a> –
-<em><a href="Killers_of_the_Flower_Moon_(film)" title="wikilink">Killers
-of the Flower Moon</a></em></li>
-<li><a href="Yorgos_Lanthimos" title="wikilink">Yorgos Lanthimos</a> –
-<em><a href="Poor_Things_(film)" title="wikilink">Poor
-Things</a></em></li>
-<li><a href="Jonathan_Glazer" title="wikilink">Jonathan Glazer</a> –
-<em><a href="The_Zone_of_Interest_(film)" title="wikilink">The Zone of
-Interest</a></em></li>
-</ul></li>
-</ul></td>
-</tr>
-<tr class="even">
-<td style="vertical-align:top; width:50%;"><ul>
-<li><strong><a href="Cillian_Murphy" title="wikilink">Cillian Murphy</a>
-– <em><a href="Oppenheimer_(film)" title="wikilink">Oppenheimer</a></em>
-as <a href="J._Robert_Oppenheimer" title="wikilink">J. Robert
-Oppenheimer</a> </strong>
-<ul>
-<li><a href="Bradley_Cooper" title="wikilink">Bradley Cooper</a> –
-<em><a href="Maestro_(2023_film)" title="wikilink">Maestro</a></em> as
-<a href="Leonard_Bernstein" title="wikilink">Leonard Bernstein</a></li>
-<li><a href="Colman_Domingo" title="wikilink">Colman Domingo</a> –
-<em><a href="Rustin_(film)" title="wikilink">Rustin</a></em> as <a
-href="Bayard_Rustin" title="wikilink">Bayard Rustin</a></li>
-<li><a href="Paul_Giamatti" title="wikilink">Paul Giamatti</a> – <em><a
-href="The_Holdovers" title="wikilink">The Holdovers</a></em> as Paul
-Hunham</li>
-<li><a href="Jeffrey_Wright" title="wikilink">Jeffrey Wright</a> –
-<em><a href="American_Fiction_(film)" title="wikilink">American
-Fiction</a></em> as Thelonious "Monk" Ellison</li>
-</ul></li>
-</ul></td>
-<td style="vertical-align:top; width:50%;"><ul>
-<li><strong><a href="Emma_Stone" title="wikilink">Emma Stone</a> –
-<em><a href="Poor_Things_(film)" title="wikilink">Poor Things</a></em>
-as Bella Baxter </strong>
-<ul>
-<li><a href="Annette_Bening" title="wikilink">Annette Bening</a> –
-<em><a href="Nyad_(film)" title="wikilink">Nyad</a></em> as <a
-href="Diana_Nyad" title="wikilink">Diana Nyad</a></li>
-<li><a href="Lily_Gladstone" title="wikilink">Lily Gladstone</a> –
-<em><a href="Killers_of_the_Flower_Moon_(film)" title="wikilink">Killers
-of the Flower Moon</a></em> as <a href="Mollie_Kyle"
-title="wikilink">Mollie Burkhart</a></li>
-<li><a href="Sandra_Hüller" title="wikilink">Sandra Hüller</a> – <em><a
-href="Anatomy_of_a_Fall" title="wikilink">Anatomy of a Fall</a></em> as
-Sandra Voyter</li>
-<li><a href="Carey_Mulligan" title="wikilink">Carey Mulligan</a> –
-<em><a href="Maestro_(2023_film)" title="wikilink">Maestro</a></em> as
-<a href="Felicia_Montealegre_Bernstein" title="wikilink">Felicia
-Montealegre</a></li>
-</ul></li>
-</ul></td>
-</tr>
-<tr class="odd">
-<td style="vertical-align:top; width:50%;"><ul>
-<li><strong><a href="Robert_Downey_Jr." title="wikilink">Robert Downey
-Jr.</a></strong> <strong>– <em><a href="Oppenheimer_(film)"
-title="wikilink">Oppenheimer</a></em> as <a href="Lewis_Strauss"
-title="wikilink">Lewis Strauss</a> </strong>
-<ul>
-<li><a href="Sterling_K._Brown" title="wikilink">Sterling K. Brown</a> –
-<em><a href="American_Fiction_(film)" title="wikilink">American
-Fiction</a></em> as Clifford "Cliff" Ellison</li>
-<li><a href="Robert_De_Niro" title="wikilink">Robert De Niro</a> –
-<em><a href="Killers_of_the_Flower_Moon_(film)" title="wikilink">Killers
-of the Flower Moon</a></em> as <a href="William_King_Hale"
-title="wikilink">William King Hale</a></li>
-<li><a href="Ryan_Gosling" title="wikilink">Ryan Gosling</a> – <em><a
-href="Barbie_(film)" title="wikilink">Barbie</a></em> as <a
-href="Ken_(doll)" title="wikilink">Ken</a></li>
-<li><a href="Mark_Ruffalo" title="wikilink">Mark Ruffalo</a> – <em><a
-href="Poor_Things_(film)" title="wikilink">Poor Things</a></em> as
-Duncan Wedderburn</li>
-</ul></li>
-</ul></td>
-<td style="vertical-align:top; width:50%;"><ul>
-<li><strong><a href="Da&#39;Vine_Joy_Randolph" title="wikilink">Da'Vine
-Joy Randolph</a> – <em><a href="The_Holdovers" title="wikilink">The
-Holdovers</a></em> as Mary Lamb</strong> <strong></strong>
-<ul>
-<li><a href="Emily_Blunt" title="wikilink">Emily Blunt</a> – <em><a
-href="Oppenheimer_(film)" title="wikilink">Oppenheimer</a></em> as <a
-href="Katherine_Oppenheimer" title="wikilink">Kitty Oppenheimer</a></li>
-<li><a href="Danielle_Brooks" title="wikilink">Danielle Brooks</a> –
-<em><a href="The_Color_Purple_(2023_film)" title="wikilink">The Color
-Purple</a></em> as Sofia</li>
-<li><a href="America_Ferrera" title="wikilink">America Ferrera</a> –
-<em><a href="Barbie_(film)" title="wikilink">Barbie</a></em> as
-Gloria</li>
-<li><a href="Jodie_Foster" title="wikilink">Jodie Foster</a> – <em><a
-href="Nyad_(film)" title="wikilink">Nyad</a></em> as <a
-href="Bonnie_Stoll" title="wikilink">Bonnie Stoll</a></li>
-</ul></li>
-</ul></td>
-</tr>
-<tr class="even">
-<td style="vertical-align:top; width:50%;"><ul>
-<li><strong><em><a href="Anatomy_of_a_Fall" title="wikilink">Anatomy of
-a Fall</a></em> – <a href="Justine_Triet" title="wikilink">Justine
-Triet</a> and <a href="Arthur_Harari" title="wikilink">Arthur Harari</a>
-‡</strong>
-<ul>
-<li><em><a href="The_Holdovers" title="wikilink">The Holdovers</a></em>
-– <a href="David_Hemingson" title="wikilink">David Hemingson</a></li>
-<li><em><a href="Maestro_(2023_film)" title="wikilink">Maestro</a></em>
-– <a href="Bradley_Cooper" title="wikilink">Bradley Cooper</a> and <a
-href="Josh_Singer" title="wikilink">Josh Singer</a></li>
-<li><em><a href="May_December" title="wikilink">May December</a></em> –
-Screenplay by <a href="Samy_Burch" title="wikilink">Samy Burch</a>;
-Story by Samy Burch and <a href="Alex_Mechanik" title="wikilink">Alex
-Mechanik</a></li>
-<li><em><a href="Past_Lives_(film)" title="wikilink">Past Lives</a></em>
-– <a href="Celine_Song" title="wikilink">Celine Song</a></li>
-</ul></li>
-</ul></td>
-<td style="vertical-align:top; width:50%;"><ul>
-<li><em><a href="American_Fiction_(film)"
-title="wikilink"><strong>American Fiction</strong></a></em> <strong>– <a
-href="Cord_Jefferson" title="wikilink">Cord Jefferson</a>; based on the
-novel <em><a href="Erasure_(novel)" title="wikilink">Erasure</a></em> by
-<a href="Percival_Everett" title="wikilink">Percival Everett</a>
-‡</strong>
-<ul>
-<li><em><a href="Barbie_(film)" title="wikilink">Barbie</a></em> – <a
-href="Greta_Gerwig" title="wikilink">Greta Gerwig</a> and <a
-href="Noah_Baumbach" title="wikilink">Noah Baumbach</a>; based on <a
-href="Barbie" title="wikilink">Barbie</a> by <a href="Mattel"
-title="wikilink">Mattel</a></li>
-<li><em><a href="Oppenheimer_(film)"
-title="wikilink">Oppenheimer</a></em> – <a href="Christopher_Nolan"
-title="wikilink">Christopher Nolan</a>; based on the biography <em><a
-href="American_Prometheus" title="wikilink">American Prometheus: The
-Triumph and Tragedy of J. Robert Oppenheimer</a></em> by <a
-href="Kai_Bird" title="wikilink">Kai Bird</a> and <a
-href="Martin_J._Sherwin" title="wikilink">Martin J. Sherwin</a></li>
-<li><em><a href="Poor_Things_(film)" title="wikilink">Poor
-Things</a></em> – <a href="Tony_McNamara_(writer)" title="wikilink">Tony
-McNamara</a>; based on <a href="Poor_Things" title="wikilink">the
-novel</a> by <a href="Alasdair_Gray" title="wikilink">Alasdair
-Gray</a></li>
-<li><em><a href="The_Zone_of_Interest_(film)" title="wikilink">The Zone
-of Interest</a></em> – <a href="Jonathan_Glazer"
-title="wikilink">Jonathan Glazer</a>; based on <a
-href="The_Zone_of_Interest_(novel)" title="wikilink">the novel</a> by <a
-href="Martin_Amis" title="wikilink">Martin Amis</a></li>
-</ul></li>
-</ul></td>
-</tr>
-<tr class="odd">
-<td style="vertical-align:top; width:50%;"><ul>
-<li><strong><em><a href="The_Boy_and_the_Heron" title="wikilink">The Boy
-and the Heron</a></em> – <a href="Hayao_Miyazaki" title="wikilink">Hayao
-Miyazaki</a> and <a href="Toshio_Suzuki_(producer)"
-title="wikilink">Toshio Suzuki</a> ‡</strong>
-<ul>
-<li><em><a href="Elemental_(2023_film)"
-title="wikilink">Elemental</a></em> – <a href="Peter_Sohn"
-title="wikilink">Peter Sohn</a> and Denise Ream</li>
-<li><em><a href="Nimona_(film)" title="wikilink">Nimona</a></em> – <a
-href="Nick_Bruno_and_Troy_Quane" title="wikilink">Nick Bruno, Troy
-Quane</a>, , and Julie Zackary</li>
-<li><em><a href="Robot_Dreams_(film)" title="wikilink">Robot
-Dreams</a></em> – <a href="Pablo_Berger" title="wikilink">Pablo
-Berger</a>, , Ignasi Estapé, and </li>
-<li><em><a href="Spider-Man:_Across_the_Spider-Verse"
-title="wikilink">Spider-Man: Across the Spider-Verse</a></em> – <a
-href="Kemp_Powers" title="wikilink">Kemp Powers</a>, Justin K. Thompson,
-<a href="Phil_Lord_and_Christopher_Miller" title="wikilink">Phil Lord,
-Christopher Miller</a>, and <a href="Amy_Pascal" title="wikilink">Amy
-Pascal</a></li>
-</ul></li>
-</ul></td>
-<td style="vertical-align:top; width:50%;"><ul>
-<li><em><a href="The_Zone_of_Interest_(film)"
-title="wikilink"><strong>The Zone of Interest</strong></a></em>
-<strong>(<a
-href="List_of_British_submissions_for_the_Academy_Award_for_Best_International_Feature_Film"
-title="wikilink">United Kingdom</a>) – directed by <a
-href="Jonathan_Glazer" title="wikilink">Jonathan Glazer</a> ‡</strong>
-<ul>
-<li><em><a href="Io_capitano" title="wikilink">Io capitano</a></em> (<a
-href="List_of_Italian_submissions_for_the_Academy_Award_for_Best_International_Feature_Film"
-title="wikilink">Italy</a>) – directed by <a href="Matteo_Garrone"
-title="wikilink">Matteo Garrone</a></li>
-<li><em><a href="Perfect_Days" title="wikilink">Perfect Days</a></em>
-(<a
-href="List_of_Japanese_submissions_for_the_Academy_Award_for_Best_International_Feature_Film"
-title="wikilink">Japan</a>) – directed by <a href="Wim_Wenders"
-title="wikilink">Wim Wenders</a></li>
-<li><em><a href="Society_of_the_Snow" title="wikilink">Society of the
-Snow</a></em> (<a
-href="List_of_Spanish_submissions_for_the_Academy_Award_for_Best_International_Feature_Film"
-title="wikilink">Spain</a>) – directed by <a href="J._A._Bayona"
-title="wikilink">J. A. Bayona</a></li>
-<li><em><a href="The_Teachers&#39;_Lounge" title="wikilink">The
-Teachers' Lounge</a></em> (<a
-href="List_of_German_submissions_for_the_Academy_Award_for_Best_International_Feature_Film"
-title="wikilink">Germany</a>) – directed by <a href="İlker_Çatak"
-title="wikilink">İlker Çatak</a></li>
-</ul></li>
-</ul></td>
-</tr>
-<tr class="even">
-<td style="vertical-align:top; width:50%;"><ul>
-<li><em><a href="20_Days_in_Mariupol" title="wikilink"><strong>20 Days
-in Mariupol</strong></a></em> <strong>– <a href="Mstyslav_Chernov"
-title="wikilink">Mstyslav Chernov</a>, <a href="Michelle_Mizner"
-title="wikilink">Michelle Mizner</a>, and <a href="Raney_Aronson-Rath"
-title="wikilink">Raney Aronson-Rath</a> ‡</strong>
-<ul>
-<li><em><a href="Bobi_Wine:_The_People&#39;s_President"
-title="wikilink">Bobi Wine: The People's President</a></em> – ,
-Christopher Sharp, and <a href="John_Battsek" title="wikilink">John
-Battsek</a></li>
-<li><em><a href="The_Eternal_Memory" title="wikilink">The Eternal
-Memory</a></em> – <a href="Maite_Alberdi" title="wikilink">Maite
-Alberdi</a></li>
-<li><em><a href="Four_Daughters_(2023_film)" title="wikilink">Four
-Daughters</a></em> – <a href="Kaouther_Ben_Hania"
-title="wikilink">Kaouther Ben Hania</a> and </li>
-<li><em><a href="To_Kill_a_Tiger" title="wikilink">To Kill a
-Tiger</a></em> – <a href="Nisha_Pahuja" title="wikilink">Nisha
-Pahuja</a>, , and David Oppenheim</li>
-</ul></li>
-</ul></td>
-<td style="vertical-align:top; width:50%;"><ul>
-<li><em><a href="The_Last_Repair_Shop" title="wikilink"><strong>The Last
-Repair Shop</strong></a></em> <strong>– <a href="Ben_Proudfoot"
-title="wikilink">Ben Proudfoot</a> and <a href="Kris_Bowers"
-title="wikilink">Kris Bowers</a> ‡</strong>
-<ul>
-<li><em><a href="The_ABCs_of_Book_Banning" title="wikilink">The ABCs of
-Book Banning</a></em> – <a href="Sheila_Nevins" title="wikilink">Sheila
-Nevins</a> and </li>
-<li><em><a href="The_Barber_of_Little_Rock" title="wikilink">The Barber
-of Little Rock</a></em> – John Hoffman and </li>
-<li><em><a href="Island_in_Between" title="wikilink">Island in
-Between</a></em> – <a href="S._Leo_Chiang" title="wikilink">S. Leo
-Chiang</a> and Jean Tsien</li>
-<li><em><a href="Nǎi_Nai_&amp;_Wài_Pó" title="wikilink">Nǎi Nai &amp;
-Wài Pó</a></em> – <a href="Sean_Wang" title="wikilink">Sean Wang</a> and
-Sam Davis</li>
-</ul></li>
-</ul></td>
-</tr>
-<tr class="odd">
-<td style="vertical-align:top; width:50%;"><ul>
-<li><em><a href="The_Wonderful_Story_of_Henry_Sugar_(film)"
-title="wikilink"><strong>The Wonderful Story of Henry
-Sugar</strong></a></em> <strong>– <a href="Wes_Anderson"
-title="wikilink">Wes Anderson</a> and <a href="Steven_Rales"
-title="wikilink">Steven Rales</a> ‡</strong>
-<ul>
-<li><em><a href="The_After_(film)" title="wikilink">The After</a></em> –
-<a href="Misan_Harriman" title="wikilink">Misan Harriman</a> and </li>
-<li><em><a href="Invincible_(2022_film)"
-title="wikilink">Invincible</a></em> – <a href="Vincent_René-Lortie"
-title="wikilink">Vincent René-Lortie</a> and <a href="Samuel_Caron"
-title="wikilink">Samuel Caron</a></li>
-<li><em><a href="Knight_of_Fortune" title="wikilink">Knight of
-Fortune</a></em> – and Christian Norlyk</li>
-<li><em><a href="Red,_White_and_Blue_(2023_film)" title="wikilink">Red,
-White and Blue</a></em> – <a href="Nazrin_Choudhury"
-title="wikilink">Nazrin Choudhury</a> and </li>
-</ul></li>
-</ul></td>
-<td style="vertical-align:top; width:50%;"><ul>
-<li><strong><em><a href="War_Is_Over!" title="wikilink">War Is Over!
-Inspired by the Music of John and Yoko</a></em> – <a
-href="Dave_Mullins_(animator)" title="wikilink">Dave Mullins</a> and <a
-href="Brad_Booker" title="wikilink">Brad Booker</a> ‡</strong>
-<ul>
-<li><em><a href="Letter_to_a_Pig" title="wikilink">Letter to a
-Pig</a></em> – <a href="Tal_Kantor" title="wikilink">Tal Kantor</a> and
-<a href="Amit_Gicelter" title="wikilink">Amit R. Gicelter</a></li>
-<li><em><a href="Ninety-Five_Senses" title="wikilink">Ninety-Five
-Senses</a></em> – <a href="Jared_and_Jerusha_Hess"
-title="wikilink">Jared and Jerusha Hess</a></li>
-<li><em><a href="Our_Uniform" title="wikilink">Our Uniform</a></em> –
-Yegane Moghaddam</li>
-<li><em><a href="Pachyderme" title="wikilink">Pachyderme</a></em> – and
-Marc Rius</li>
-</ul></li>
-</ul></td>
-</tr>
-<tr class="even">
-<td style="vertical-align:top; width:50%;"><ul>
-<li><em><strong><a href="Oppenheimer_(film)"
-title="wikilink">Oppenheimer</a></strong></em> – <strong><a
-href="Ludwig_Göransson" title="wikilink">Ludwig Göransson</a></strong>
-<strong>‡</strong>
-<ul>
-<li><em><a href="American_Fiction_(film)" title="wikilink">American
-Fiction</a></em> – <a href="Laura_Karpman" title="wikilink">Laura
-Karpman</a></li>
-<li><em><a href="Indiana_Jones_and_the_Dial_of_Destiny"
-title="wikilink">Indiana Jones and the Dial of Destiny</a></em> – <a
-href="John_Williams" title="wikilink">John Williams</a></li>
-<li><em><a href="Killers_of_the_Flower_Moon_(film)"
-title="wikilink">Killers of the Flower Moon</a></em> – <a
-href="Robbie_Robertson" title="wikilink">Robbie Robertson</a> </li>
-<li><em><a href="Poor_Things_(film)" title="wikilink">Poor
-Things</a></em> – <a href="Jerskin_Fendrix" title="wikilink">Jerskin
-Fendrix</a></li>
-</ul></li>
-</ul></td>
-<td style="vertical-align:top; width:50%;"><ul>
-<li><strong>"<a href="What_Was_I_Made_For?" title="wikilink">What Was I
-Made For?</a>" from <em><a href="Barbie_(film)"
-title="wikilink">Barbie</a></em> – Music and lyrics by <a
-href="Billie_Eilish" title="wikilink">Billie Eilish</a> and <a
-href="Finneas_O&#39;Connell" title="wikilink">Finneas
-O'Connell</a></strong> <strong>‡</strong>
-<ul>
-<li>"" from <em><a href="Flamin&#39;_Hot" title="wikilink">Flamin'
-Hot</a></em> – Music and lyrics by <a href="Diane_Warren"
-title="wikilink">Diane Warren</a></li>
-<li>"<a href="I&#39;m_Just_Ken" title="wikilink">I'm Just Ken</a>" from
-<em><a href="Barbie_(film)" title="wikilink">Barbie</a></em> – Music and
-lyrics by <a href="Mark_Ronson" title="wikilink">Mark Ronson</a> and <a
-href="Andrew_Wyatt" title="wikilink">Andrew Wyatt</a></li>
-<li>"<a href="It_Never_Went_Away" title="wikilink">It Never Went
-Away</a>" from <em><a href="American_Symphony_(film)"
-title="wikilink">American Symphony</a></em> – Music and lyrics by <a
-href="Jon_Batiste" title="wikilink">Jon Batiste</a> and <a
-href="Dan_Wilson_(musician)" title="wikilink">Dan Wilson</a></li>
-<li>"" from <em><a href="Killers_of_the_Flower_Moon_(film)"
-title="wikilink">Killers of the Flower Moon</a></em> – Music and lyrics
-by <a href="Scott_George" title="wikilink">Scott George</a></li>
-</ul></li>
-</ul></td>
-</tr>
-<tr class="odd">
-<td style="vertical-align:top; width:50%;"><ul>
-<li><em><a href="The_Zone_of_Interest_(film)"
-title="wikilink"><strong>The Zone of Interest</strong></a></em>
-<strong>– <a href="Tarn_Willers" title="wikilink">Tarn Willers</a> and
-<a href="Johnnie_Burn" title="wikilink">Johnnie Burn</a> ‡</strong>
-<ul>
-<li><em><a href="The_Creator_(2023_film)" title="wikilink">The
-Creator</a></em> – <a href="Ian_Voigt" title="wikilink">Ian Voigt</a>,
-<a href="Erik_Aadahl" title="wikilink">Erik Aadahl</a>, <a
-href="Ethan_Van_der_Ryn" title="wikilink">Ethan Van der Ryn</a>, <a
-href="Tom_Ozanich" title="wikilink">Tom Ozanich</a>, and <a
-href="Dean_A._Zupancic" title="wikilink">Dean Zupancic</a></li>
-<li><em><a href="Maestro_(2023_film)" title="wikilink">Maestro</a></em>
-– <a href="Steven_A._Morrow" title="wikilink">Steven A. Morrow</a>, <a
-href="Richard_King_(sound_designer)" title="wikilink">Richard King</a>,
-<a href="Jason_Ruder" title="wikilink">Jason Ruder</a>, Tom Ozanich, and
-Dean Zupancic</li>
-<li><em><a href="Mission:_Impossible_–_Dead_Reckoning_Part_One"
-title="wikilink">Mission: Impossible – Dead Reckoning Part One</a></em>
-– <a href="Chris_Munro" title="wikilink">Chris Munro</a>, <a
-href="James_Mather_(sound_editor)" title="wikilink">James H. Mather</a>,
-<a href="Chris_Burdon" title="wikilink">Chris Burdon</a>, and <a
-href="Mark_Taylor_(sound_engineer)" title="wikilink">Mark
-Taylor</a></li>
-<li><em><a href="Oppenheimer_(film)"
-title="wikilink">Oppenheimer</a></em> – <a href="Willie_D._Burton"
-title="wikilink">Willie Burton</a>, <a
-href="Richard_King_(sound_designer)" title="wikilink">Richard King</a>,
-<a href="Gary_Rizzo" title="wikilink">Gary A. Rizzo</a>, and <a
-href="Kevin_O&#39;Connell_(sound_mixer)" title="wikilink">Kevin
-O'Connell</a></li>
-</ul></li>
-</ul></td>
-<td style="vertical-align:top; width:50%;"><ul>
-<li><em><a href="Poor_Things_(film)" title="wikilink"><strong>Poor
-Things</strong></a></em> <strong>– Production Design: <a
-href="James_Price_(art_director)" title="wikilink">James Price</a> and
-<a href="Shona_Heath" title="wikilink">Shona Heath</a>; Set Decoration:
-<a href="Zsuzsa_Mihalek" title="wikilink">Zsuzsa Mihalek</a> ‡</strong>
-<ul>
-<li><em><a href="Barbie_(film)" title="wikilink">Barbie</a></em> –
-Production Design: <a href="Sarah_Greenwood" title="wikilink">Sarah
-Greenwood</a>; Set Decoration: <a href="Katie_Spencer"
-title="wikilink">Katie Spencer</a></li>
-<li><em><a href="Killers_of_the_Flower_Moon_(film)"
-title="wikilink">Killers of the Flower Moon</a></em> – Production
-Design: <a href="Jack_Fisk" title="wikilink">Jack Fisk</a>; Set
-Decoration: <a href="Adam_Willis_(set_decorator)" title="wikilink">Adam
-Willis</a></li>
-<li><em><a href="Napoleon_(2023_film)"
-title="wikilink">Napoleon</a></em> – Production Design: <a
-href="Arthur_Max" title="wikilink">Arthur Max</a>; Set Decoration: <a
-href="Elli_Griff" title="wikilink">Elli Griff</a></li>
-<li><em><a href="Oppenheimer_(film)"
-title="wikilink">Oppenheimer</a></em> – Production Design: <a
-href="Ruth_De_Jong" title="wikilink">Ruth De Jong</a>; Set Decoration:
-<a href="Claire_Kaufman" title="wikilink">Claire Kaufman</a></li>
-</ul></li>
-</ul></td>
-</tr>
-<tr class="even">
-<td style="vertical-align:top; width:50%;"><ul>
-<li><em><a href="Oppenheimer_(film)"
-title="wikilink"><strong>Oppenheimer</strong></a></em> <strong>– <a
-href="Hoyte_van_Hoytema" title="wikilink">Hoyte van Hoytema</a>
-‡</strong>
-<ul>
-<li><em><a href="El_Conde_(film)" title="wikilink">El Conde</a></em> –
-<a href="Edward_Lachman" title="wikilink">Edward Lachman</a></li>
-<li><em><a href="Killers_of_the_Flower_Moon_(film)"
-title="wikilink">Killers of the Flower Moon</a></em> – <a
-href="Rodrigo_Prieto" title="wikilink">Rodrigo Prieto</a></li>
-<li><em><a href="Maestro_(2023_film)" title="wikilink">Maestro</a></em>
-– <a href="Matthew_Libatique" title="wikilink">Matthew
-Libatique</a></li>
-<li><em><a href="Poor_Things_(film)" title="wikilink">Poor
-Things</a></em> – <a href="Robbie_Ryan_(cinematographer)"
-title="wikilink">Robbie Ryan</a></li>
-</ul></li>
-</ul></td>
-<td style="vertical-align:top; width:50%;"><ul>
-<li><em><a href="Poor_Things_(film)" title="wikilink"><strong>Poor
-Things</strong></a></em> <strong>– <a href="Nadia_Stacey"
-title="wikilink">Nadia Stacey</a>, <a href="Mark_Coulier"
-title="wikilink">Mark Coulier</a>, and <a
-href="Josh_Weston_(make-up_artist)" title="wikilink">Josh Weston</a>
-‡</strong>
-<ul>
-<li><em><a href="Golda_(film)" title="wikilink">Golda</a></em> – <a
-href="Karen_Hartley_Thomas" title="wikilink">Karen Hartley Thomas</a>,
-<a href="Suzi_Battersby" title="wikilink">Suzi Battersby</a>, and <a
-href="Ashra_Kelly-Blue" title="wikilink">Ashra Kelly-Blue</a></li>
-<li><em><a href="Maestro_(2023_film)" title="wikilink">Maestro</a></em>
-– <a href="Kazu_Hiro" title="wikilink">Kazu Hiro</a>, <a
-href="Kay_Georgiou" title="wikilink">Kay Georgiou</a>, and <a
-href="Lori_McCoy-Bell" title="wikilink">Lori McCoy-Bell</a></li>
-<li><em><a href="Oppenheimer_(film)"
-title="wikilink">Oppenheimer</a></em> – <a href="Luisa_Abel"
-title="wikilink">Luisa Abel</a></li>
-<li><em><a href="Society_of_the_Snow" title="wikilink">Society of the
-Snow</a></em> – <a href="Ana_López-Puigcerver" title="wikilink">Ana
-López-Puigcerver</a>, <a href="David_Martí" title="wikilink">David
-Martí</a>, and <a href="Montse_Ribé" title="wikilink">Montse
-Ribé</a></li>
-</ul></li>
-</ul></td>
-</tr>
-<tr class="odd">
-<td style="vertical-align:top; width:50%;"><ul>
-<li><em><a href="Poor_Things_(film)" title="wikilink"><strong>Poor
-Things</strong></a></em> <strong>– <a href="Holly_Waddington"
-title="wikilink">Holly Waddington</a> ‡</strong>
-<ul>
-<li><em><a href="Barbie_(film)" title="wikilink">Barbie</a></em> – <a
-href="Jacqueline_Durran" title="wikilink">Jacqueline Durran</a></li>
-<li><em><a href="Killers_of_the_Flower_Moon_(film)"
-title="wikilink">Killers of the Flower Moon</a></em> – <a
-href="Jacqueline_West" title="wikilink">Jacqueline West</a></li>
-<li><em><a href="Napoleon_(2023_film)"
-title="wikilink">Napoleon</a></em> – <a href="Janty_Yates"
-title="wikilink">Janty Yates</a> and <a href="Dave_Crossman"
-title="wikilink">Dave Crossman</a></li>
-<li><em><a href="Oppenheimer_(film)"
-title="wikilink">Oppenheimer</a></em> – <a href="Ellen_Mirojnick"
-title="wikilink">Ellen Mirojnick</a></li>
-</ul></li>
-</ul></td>
-<td style="vertical-align:top; width:50%;"><ul>
-<li><em><a href="Oppenheimer_(film)"
-title="wikilink"><strong>Oppenheimer</strong></a></em> <strong>– <a
-href="Jennifer_Lame" title="wikilink">Jennifer Lame</a> ‡</strong>
-<ul>
-<li><em><a href="Anatomy_of_a_Fall" title="wikilink">Anatomy of a
-Fall</a></em> – <a href="Laurent_Sénéchal" title="wikilink">Laurent
-Sénéchal</a></li>
-<li><em><a href="The_Holdovers" title="wikilink">The Holdovers</a></em>
-– <a href="Kevin_Tent" title="wikilink">Kevin Tent</a></li>
-<li><em><a href="Killers_of_the_Flower_Moon_(film)"
-title="wikilink">Killers of the Flower Moon</a></em> – <a
-href="Thelma_Schoonmaker" title="wikilink">Thelma Schoonmaker</a></li>
-<li><em><a href="Poor_Things_(film)" title="wikilink">Poor
-Things</a></em> – <a href="Yorgos_Mavropsaridis" title="wikilink">Yorgos
-Mavropsaridis</a></li>
-</ul></li>
-</ul></td>
-</tr>
-<tr class="even">
-<td colspan="2" style="vertical-align:top; width:50%;"><ul>
-<li><em><a href="Godzilla_Minus_One" title="wikilink"><strong>Godzilla
-Minus One</strong></a></em> <strong>– <a href="Takashi_Yamazaki"
-title="wikilink">Takashi Yamazaki</a>, <a href="Kiyoko_Shibuya"
-title="wikilink">Kiyoko Shibuya</a>, <a href="Masaki_Takahashi"
-title="wikilink">Masaki Takahashi</a>, and <a href="Tatsuji_Nojima"
-title="wikilink">Tatsuji Nojima</a> ‡</strong>
-<ul>
-<li><em><a href="The_Creator_(2023_film)" title="wikilink">The
-Creator</a></em> – <a href="Jay_Cooper" title="wikilink">Jay Cooper</a>,
-<a href="Ian_Comley" title="wikilink">Ian Comley</a>, <a
-href="Andrew_Roberts_(visual_effects_supervisor)"
-title="wikilink">Andrew Roberts</a>, and <a href="Neil_Corbould"
-title="wikilink">Neil Corbould</a></li>
-<li><em><a href="Guardians_of_the_Galaxy_Vol._3"
-title="wikilink">Guardians of the Galaxy Vol. 3</a></em> – <a
-href="Stéphane_Ceretti" title="wikilink">Stéphane Ceretti</a>, <a
-href="Alexis_Wajsbrot" title="wikilink">Alexis Wajsbrot</a>, <a
-href="Guy_Williams_(visual_effects)" title="wikilink">Guy Williams</a>,
-and <a href="Theo_Bialek" title="wikilink">Theo Bialek</a></li>
-<li><em><a href="Mission:_Impossible_–_Dead_Reckoning_Part_One"
-title="wikilink">Mission: Impossible – Dead Reckoning Part One</a></em>
-– <a href="Alex_Wuttke" title="wikilink">Alex Wuttke</a>, <a
-href="Simone_Coco" title="wikilink">Simone Coco</a>, <a
-href="Jeff_Sutherland_(visual_effects_artist)" title="wikilink">Jeff
-Sutherland</a>, and Neil Corbould</li>
-<li><em><a href="Napoleon_(2023_film)"
-title="wikilink">Napoleon</a></em> – <a href="Charley_Henley"
-title="wikilink">Charley Henley</a>, <a
-href="Luc-Ewen_Martin-Fenouillet" title="wikilink">Luc-Ewen
-Martin-Fenouillet</a>, Simone Coco, and Neil Corbould</li>
-</ul></li>
-</ul></td>
-</tr>
-</tbody>
-</table>
+* Cillian Murphy, Best Actor winner
 
+* Emma Stone, Best Actress winner
+
+* Robert Downey Jr., Best Supporting Actor winner
+
+* Da'Vine Joy Randolph, Best Supporting Actress winner
+
+* Justine Triet and Arthur Harari, Best Original Screenplay winners
+
+* Mstyslav Chernov, Best Documentary Feature Film co-winner
+
+* Jonathan Glazer, Best International Feature Film winner
+
+* Hayao Miyazaki and Toshio Suzuki, Best Animated Feature winners
+
+* Wes Anderson, Best Live Action Short co-winner
+
+* Ludwig Göransson, Best Original Score winner
+
+* Billie Eilish and Finneas O'Connell, Best Original Song winners
+
+* Takashi Yamazaki, Best Visual Effects co-winner
+
+### Categories, Winners and Nominees
+
+1. Best Picture
+    * Winner  
+        - **Oppenheimer** 
+        Producers: Emma Thomas, Charles Roven, and Christopher Nolan, producers ‡
+    * Nominees - 
+        - **American Fiction**  
+    Producers: Ben LeClair, Nikos Karamigios [de], Cord Jefferson, and Jermaine Johnson
+
+        - **Anatomy of a Fall**  
+        Producers: Marie-Ange Luciani and David Thion
+
+        - **Barbie**  
+        Producers: David Heyman, Margot Robbie, Tom Ackerley, and Robbie Brenner
+
+        - **The Holdovers**  
+        Producer: Mark Johnson
+
+        - **Killers of the Flower Moon**  
+        Producers: Dan Friedkin, Bradley Thomas, Martin Scorsese, and Daniel Lupi
+
+        - **Maestro**  
+        Producers: Bradley Cooper, Steven Spielberg, Fred Berner, Amy Durning [de], and Kristie Macosko Krieger
+
+        - **Past Lives**  
+        Producers: David Hinojosa, Christine Vachon, and Pamela Koffler
+
+        - **Poor Things**  
+        Producers: Ed Guiney, Andrew Lowe, Yorgos Lanthimos, and Emma Stone
+
+        - **The Zone of Interest**  
+        Producer: James Wilson
+
+2. Best Director
+   * Winner  
+      - **Christopher Nolan** – Oppenheimer ‡
+   * Nominees  
+      - **Justine Triet** – Anatomy of a Fall
+
+      - **Martin Scorsese** – Killers of the Flower Moon
+
+      - **Yorgos Lanthimos** – Poor Things
+
+      - **Jonathan Glazer** – The Zone of Interest
+
+3. Best Actor
+   * Winner  
+      - **Cillian Murphy** – Oppenheimer as J. Robert Oppenheimer ‡
+   * Nominees  
+      - **Bradley Cooper** – Maestro as Leonard Bernstein
+
+      - **Colman Domingo** – Rustin as Bayard Rustin
+
+      - **Paul Giamatti** – The Holdovers as Paul Hunham
+
+      - **Jeffrey Wright** – American Fiction as Thelonious "Monk" Ellison
+
+4. Best Actress
+   * Winner  
+      - **Emma Stone** – Poor Things as Bella Baxter ‡
+   * Nominees  
+      - **Annette Bening** – Nyad as Diana Nyad
+
+      - **Lily Gladstone** – Killers of the Flower Moon as Mollie Burkhart
+
+      - **Sandra Hüller** – Anatomy of a Fall as Sandra Voyter
+
+      - **Carey Mulligan** – Maestro as Felicia Montealegre
+
+5. Best Supporting Actor
+   * Winner  
+      - **Robert Downey Jr.** – Oppenheimer as Lewis Strauss ‡
+   * Nominees  
+      - **Sterling K. Brown** – American Fiction as Clifford "Cliff" Ellison
+
+      - **Robert De Niro** – Killers of the Flower Moon as William King Hale
+
+      - **Ryan Gosling** – Barbie as Ken
+
+      - **Mark Ruffalo** – Poor Things as Duncan Wedderburn
+
+6. Best Supporting Actress
+   * Winner  
+      - **Da'Vine Joy Randolph** – The Holdovers as Mary Lamb ‡
+   * Nominees  
+      - **Emily Blunt** – Oppenheimer as Kitty Oppenheimer
+
+      - **Danielle Brooks** – The Color Purple as Sofia
+
+      - **America Ferrera** – Barbie as Gloria
+
+      - **Jodie Foster** – Nyad as Bonnie Stoll
+
+7. Best Original Screenplay
+   * Winner  
+      - **Anatomy of a Fall** – Justine Triet and Arthur Harari ‡
+   * Nominees  
+      - **The Holdovers** – David Hemingson
+
+      - **Maestro** – Bradley Cooper and Josh Singer
+
+      - **May December** – Screenplay by Samy Burch; Story by Samy Burch and Alex Mechanik
+
+      - **Past Lives** – Celine Song
+
+8. Best Adapted Screenplay
+   * Winner  
+      - **American Fiction** – Cord Jefferson; based on the novel _Erasure_ by Percival Everett ‡
+   * Nominees  
+      - **Barbie** – Greta Gerwig and Noah Baumbach; based on Barbie by Mattel
+
+      - **Oppenheimer** – Christopher Nolan; based on the biography _American Prometheus: The Triumph and Tragedy of J. Robert Oppenheimer_ by Kai Bird and Martin J. Sherwin
+
+      - **Poor Things** – Tony McNamara; based on the novel by Alasdair Gray
+
+      - **The Zone of Interest** – Jonathan Glazer; based on the novel by Martin Amis
+
+9. Best Animated Feature
+   * Winner  
+      - **The Boy and the Heron** – Hayao Miyazaki and Toshio Suzuki ‡
+   * Nominees  
+      - **Elemental** – Peter Sohn and Denise Ream
+
+      - **Nimona** – Nick Bruno, Troy Quane, Karen Ryan [de], and Julie Zackary
+
+      - **Robot Dreams** – Pablo Berger, Ibon Cormenzana [ca], Ignasi Estapé, and Sandra Tapia Díaz [ca]
+
+      - **Spider-Man: Across the Spider-Verse** – Kemp Powers, Justin K. Thompson, Phil Lord, Christopher Miller, and Amy Pascal
+
+10. Best International Feature Film
+   * Winner  
+      - **The Zone of Interest** (United Kingdom) – directed by Jonathan Glazer ‡
+   * Nominees  
+      - **Io capitano** (Italy) – directed by Matteo Garrone
+
+      - **Perfect Days** (Japan) – directed by Wim Wenders
+
+      - **Society of the Snow** (Spain) – directed by J. A. Bayona
+
+      - **The Teachers' Lounge** (Germany) – directed by İlker Çatak
+11. Best Documentary Feature Film
+    * Winner  
+      - **20 Days in Mariupol** – Mstyslav Chernov, Michelle Mizner, and Raney Aronson-Rath ‡
+    * Nominees  
+      - **Bobi Wine: The People's President** – Moses Bwayo [de], Christopher Sharp, and John Battsek
+
+      - **The Eternal Memory** – Maite Alberdi
+
+      - **Four Daughters** – Kaouther Ben Hania and Nadim Cheikhrouha [de]
+
+      - **To Kill a Tiger** – Nisha Pahuja, Cornelia Principe [de], and David Oppenheim
+
+12. Best Documentary Short Film
+    * Winner  
+      - **The Last Repair Shop** – Ben Proudfoot and Kris Bowers ‡
+    * Nominees  
+      - **The ABCs of Book Banning** – Sheila Nevins and Trish Adlesic [de; no]
+
+      - **The Barber of Little Rock** – John Hoffman and Christine Turner [de]
+
+      - **Island in Between** – S. Leo Chiang and Jean Tsien
+
+      - **Nǎi Nai & Wài Pó** – Sean Wang and Sam Davis
+
+13. Best Live Action Short Film
+    * Winner  
+      - **The Wonderful Story of Henry Sugar** – Wes Anderson and Steven Rales ‡
+    * Nominees  
+      - **The After** – Misan Harriman and Nicky Bentham [de]
+
+      - **Invincible** – Vincent René-Lortie and Samuel Caron
+
+      - **Knight of Fortune** – Lasse Lyskjær Noer [de] and Christian Norlyk
+
+      - **Red, White and Blue** – Nazrin Choudhury and Sara McFarlane [de]
+
+14. Best Animated Short Film
+    * Winner  
+      - **War Is Over! Inspired by the Music of John and Yoko** – Dave Mullins and Brad Booker ‡
+    * Nominees  
+      - **Letter to a Pig** – Tal Kantor and Amit R. Gicelter
+
+      - **Ninety-Five Senses** – Jared and Jerusha Hess
+
+      - **Our Uniform** – Yegane Moghaddam
+
+      - **Pachyderme** – Stéphanie Clément [de] and Marc Rius
+15. Best Original Score
+    * Winner  
+      - **Oppenheimer** – Ludwig Göransson ‡
+    * Nominees  
+      - **American Fiction** – Laura Karpman
+
+      - **Indiana Jones and the Dial of Destiny** – John Williams
+
+      - **Killers of the Flower Moon** – Robbie Robertson (posthumous nomination)
+
+      - **Poor Things** – Jerskin Fendrix
+
+16. Best Original Song
+    * Winner  
+      - **"What Was I Made For?"** from Barbie – Music and lyrics by Billie Eilish and Finneas O'Connell ‡
+    * Nominees  
+      - **"The Fire Inside [de]"** from Flamin' Hot – Music and lyrics by Diane Warren
+
+      - **"I'm Just Ken"** from Barbie – Music and lyrics by Mark Ronson and Andrew Wyatt
+
+      - **"It Never Went Away"** from American Symphony – Music and lyrics by Jon Batiste and Dan Wilson
+
+      - **"Wahzhazhe (A Song for My People) [pt]"** from Killers of the Flower Moon – Music and lyrics by Scott George
+
+17. Best Sound
+    * Winner  
+      - **The Zone of Interest** – Tarn Willers and Johnnie Burn ‡
+    * Nominees  
+      - **The Creator** – Ian Voigt, Erik Aadahl, Ethan Van der Ryn, Tom Ozanich, and Dean Zupancic
+
+      - **Maestro** – Steven A. Morrow, Richard King, Jason Ruder, Tom Ozanich, and Dean Zupancic
+
+      - **Mission: Impossible – Dead Reckoning Part One** – Chris Munro, James H. Mather, Chris Burdon, and Mark Taylor
+
+      - **Oppenheimer** – Willie Burton, Richard King, Gary A. Rizzo, and Kevin O'Connell
+
+18. Best Production Design
+    * Winner  
+      - **Poor Things**  
+        Production Design: James Price and Shona Heath; Set Decoration: Zsuzsa Mihalek ‡
+    * Nominees  
+      - **Barbie**  
+        Production Design: Sarah Greenwood; Set Decoration: Katie Spencer
+
+      - **Killers of the Flower Moon**  
+        Production Design: Jack Fisk; Set Decoration: Adam Willis
+
+      - **Napoleon**  
+        Production Design: Arthur Max; Set Decoration: Elli Griff
+
+      - **Oppenheimer**  
+        Production Design: Ruth De Jong; Set Decoration: Claire Kaufman
+19. Best Cinematography
+    * Winner  
+      - **Oppenheimer** – Hoyte van Hoytema ‡
+    * Nominees  
+      - **El Conde** – Edward Lachman
+
+      - **Killers of the Flower Moon** – Rodrigo Prieto
+
+      - **Maestro** – Matthew Libatique
+
+      - **Poor Things** – Robbie Ryan
+
+20. Best Makeup and Hairstyling
+    * Winner  
+      - **Poor Things** – Nadia Stacey, Mark Coulier, and Josh Weston ‡
+    * Nominees  
+      - **Golda** – Karen Hartley Thomas, Suzi Battersby, and Ashra Kelly-Blue
+
+      - **Maestro** – Kazu Hiro, Kay Georgiou, and Lori McCoy-Bell
+
+      - **Oppenheimer** – Luisa Abel
+
+      - **Society of the Snow** – Ana López-Puigcerver, David Martí, and Montse Ribé
+
+21. Best Costume Design
+    * Winner  
+      - **Poor Things** – Holly Waddington ‡
+    * Nominees  
+      - **Barbie** – Jacqueline Durran
+
+      - **Killers of the Flower Moon** – Jacqueline West
+
+      - **Napoleon** – Janty Yates and Dave Crossman
+
+      - **Oppenheimer** – Ellen Mirojnick
+
+22. Best Film Editing
+    * Winner  
+      - **Oppenheimer** – Jennifer Lame ‡
+    * Nominees  
+      - **Anatomy of a Fall** – Laurent Sénéchal
+
+      - **The Holdovers** – Kevin Tent
+
+      - **Killers of the Flower Moon** – Thelma Schoonmaker
+
+      - **Poor Things** – Yorgos Mavropsaridis
+
+23. Best Visual Effects
+    * Winner  
+      - **Godzilla Minus One** – Takashi Yamazaki, Kiyoko Shibuya, Masaki Takahashi, and Tatsuji Nojima ‡
+    * Nominees  
+      - **The Creator** – Jay Cooper, Ian Comley, Andrew Roberts, and Neil Corbould
+
+      - **Guardians of the Galaxy Vol. 3** – Stéphane Ceretti, Alexis Wajsbrot, Guy Williams, and Theo Bialek
+
+      - **Mission: Impossible – Dead Reckoning Part One** – Alex Wuttke, Simone Coco, Jeff Sutherland, and Neil Corbould
+
+      - **Napoleon** – Charley Henley, Luc-Ewen Martin-Fenouillet, Simone Coco, and Neil Corbould
+  
+  
 ### Governors Awards
 
 The Academy held its 14th annual [Governors
